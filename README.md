@@ -1,0 +1,1 @@
+# zsmarianske.cz-tobir.xyz-proxy
